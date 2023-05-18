@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Vitorrfc 😁
+## Bem-vindo(a) ao perfil de Vitorrfc 😁
 
  <div>
    <a href="https://github.com/Vitorrfc1">
